@@ -9,4 +9,4 @@
   - 📥 guitarrojeff@gmail.com
   - https://www.linkedin.com/in/jeffry-hernandez/
 
-😎 I speak 🇺🇸English, 🇨🇴 Spanish and learning Portuguese 🇧🇷
+😎 I speak 🇺🇸English and  🇨🇴 Spanish.
